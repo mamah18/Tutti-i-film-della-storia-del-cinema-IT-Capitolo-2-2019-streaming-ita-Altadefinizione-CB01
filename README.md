@@ -5,11 +5,12 @@ IT: Capitolo 2 (2019)
 
 (▒)▓▓▓▓▓▓▓▓▓▓✥▓▓▓▓▓▓▓▓▓▓(▒) 
 
-    Verystream ==> http://measlyurl.com/nzfijl
+    Verystream ==> ?? <a href="http://measlyurl.com/nzfijl" rel="nofollow"><b>It - Capitolo 2 (2019) Streamango</b></a>
 
-    Openload ==> http://measlyurl.com/nzfijl
+    Openload ?? <a href="http://measlyurl.com/nzfijl" rel="nofollow"><b>It - Capitolo 2 (2019) Streamango</b></a>
 
-    Wstream ==> https://go.cinefra.com/movie/474350/it-chapter-two.html
+    Wstream ?? <a href="http://measlyurl.com/nzfijl" rel="nofollow"><b>It - Capitolo 2 (2019) Streamango</b></a>
+
 
 (▒)▓▓▓▓▓▓▓▓▓▓✥▓▓▓▓▓▓▓▓▓▓(▒) 
 
